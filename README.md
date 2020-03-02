@@ -1,1 +1,1 @@
-# Kur-Buj
+# Kurn-Bujn
